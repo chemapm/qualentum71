@@ -1,1 +1,1 @@
-# qualentum71
+# qualentum71 edito fichero
